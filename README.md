@@ -2,7 +2,7 @@
 
 🎓 DAE Student (Auto & Farm Mechanical Technology)  
 💡 Passionate about Generative & Agentic AI  
-📍 Kot Momin, Pakistan | 🚀 Learning to Build Real-World AI Tools for Freelancing & Startups
+📍 Faisalabad, Pakistan | 🚀 Learning to Build Real-World AI Tools for Freelancing & Startups
 
 ---
 
